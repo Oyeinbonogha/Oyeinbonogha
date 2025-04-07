@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Facebook 
 - 😄 Pronouns: ... peace of mind 
-- ⚡ Fun fact: ...love im the first sight 
+- ⚡ Fun fact: ...love in the first sight 
 
 <!---
 Oyeinbonogha/Oyeinbonogha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
